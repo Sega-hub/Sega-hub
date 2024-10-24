@@ -18,9 +18,3 @@
 ТГ: @IPSSI17
 E-mail: serdjefre@gmail.com
 
-На данный момент я открыт к предложениям. Можете глянуть резюме👀:
-
-[Хабр](https://career.habr.com/sergio_74)
-
-[HeadHunter](https://spb.hh.ru/resume/5198380fff0901a68c0039ed1f7665304a316b?hhtmFrom=resume_list)
-
